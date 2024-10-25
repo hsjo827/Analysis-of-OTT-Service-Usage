@@ -37,7 +37,8 @@
 
 <br/>
 
-![image](https://github.com/hsjo827/KMU_Project/assets/133327403/1b414e7d-e968-45bf-9bed-d75f27475fea)
+![1](https://github.com/user-attachments/assets/78da3d24-1d4a-45ae-99de-cceaa16b7f9c)
+
 
 <br/>
 
@@ -45,7 +46,7 @@
 
 <br/>
 
-![image](https://github.com/hsjo827/KMU_Project/assets/133327403/b66ae37f-1546-4270-bbb9-9df5d2b20b96)
+![2](https://github.com/user-attachments/assets/79d1f61f-163c-4a8b-801d-73f3868f26bd)
 
 
 <br/>
@@ -54,7 +55,8 @@
 
 <br/>
 
-![image](https://github.com/hsjo827/KMU_Project/assets/133327403/4941351d-554f-4851-803d-89564a949ba8)
+![3](https://github.com/user-attachments/assets/11f3c51e-77e0-49e5-8db8-e50667f12b73)
+
 
 <br/>
 
@@ -66,7 +68,7 @@
 
 <br/>
 
-![image](https://github.com/hsjo827/KMU_Project/assets/133327403/0797f5c2-296a-4d24-97b6-1ac210a451fc)
+![4](https://github.com/user-attachments/assets/1492b213-1717-494d-9632-26ec27932fe2)
 
 
 <br/>
@@ -75,7 +77,7 @@
 
 <br/>
 
-![image](https://github.com/hsjo827/KMU_Project/assets/133327403/bef7b0c7-5579-4802-9fc2-d5c0fc137268)
+![5](https://github.com/user-attachments/assets/5b2ebc6a-2297-4777-8529-c52a86cd021a)
 
 
 <br/>
